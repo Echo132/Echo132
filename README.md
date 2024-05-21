@@ -2,10 +2,6 @@
 
 
 
-![Untitled_Artwork](https://user-images.githubusercontent.com/112459359/192129597-fc61d555-6a4d-41c1-a69b-10a00319439c.jpg)
-
-
-
 
 
 -  Hi, I’m @Echo132/Joseph Russell
